@@ -1,4 +1,4 @@
-# 
+# new NFT Scanner for blur sniper bot | slippage-control & bundle-transactions offers the most advanced blur sniper bot, with slippage-control and bundle-transactions. Ideal for
 
 
 
